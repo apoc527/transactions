@@ -1,0 +1,1 @@
+Minnesota law applies to this Agreement without regard for any choice-of-law rules that might direct the application of the laws of any other jurisdiction.

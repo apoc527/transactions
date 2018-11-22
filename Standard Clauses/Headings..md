@@ -1,0 +1,1 @@
+Headings are for convenience only and do not affect the inter- pretation of this Agreement.

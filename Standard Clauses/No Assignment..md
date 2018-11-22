@@ -1,0 +1,1 @@
+Neither party may assign this Agreement without the other party’s prior written consent, which must not be unreasonably withheld. A party’s entering into contracts with subcontractors is not considered an assignment.

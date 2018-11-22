@@ -1,0 +1,3 @@
+Advertiser shall be immediately liable to pay Company’s reasonable expenses associated with collection of unpaid monies due including, without limitation, reasonable attorney’s and collection agency’s fees.
+
+In the event that Advertiser fails to timely pay all amounts due, Company may in its sole discretion immediately remove any Advertisement from the Company Network, terminate this Agreement immediately and/or pursue all available legal, equitable and administrative remedies against Advertiser and Signor.

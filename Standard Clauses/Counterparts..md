@@ -1,0 +1,1 @@
+This Agreement may be signed in counterparts, each one of which is considered an original, but all of which constitute one and the same instrument.

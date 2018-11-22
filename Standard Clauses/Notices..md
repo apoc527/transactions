@@ -1,0 +1,1 @@
+All notices and other communications required or permitted under this Agreement must be in writing and must be sent to the party at that party’s address set forth below or at whatever other address the party speciﬁes in writing.

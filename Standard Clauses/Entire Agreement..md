@@ -1,0 +1,1 @@
+This Agreement constitutes the sole agreement of the Parties with respect to its subject matter. It supersedes any prior written or oral agreements or communications between the Parties. It may not be modiﬁed except in a writing signed by the Parties.

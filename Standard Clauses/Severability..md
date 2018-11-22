@@ -1,0 +1,1 @@
+If any part of this Agreement is for any reason held to be unenforceable, the rest of it remains fully enforceable.

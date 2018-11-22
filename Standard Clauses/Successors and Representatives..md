@@ -1,0 +1,1 @@
+This Agreement binds and inures to the beneﬁt of the Parties and their respective heirs, personal representatives, successors, and (where permitted) assignees.

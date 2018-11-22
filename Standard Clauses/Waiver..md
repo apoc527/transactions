@@ -1,0 +1,1 @@
+If either party fails to require the other to perform any term of this Agreement, that failure does not prevent the party from later enforcing that term. If either party waives the other’s breach of a term, that waiver is not treated as waiving a later breach of the term.
